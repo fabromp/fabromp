@@ -1,6 +1,6 @@
 # Hi, my name is Fabricio 👨🏻‍💻
 
- You cand find me:
+ You can find me:
   - [LinkedIn](www.linkedin.com/in/fabricio-moscoso-prado-46017a176)
   - [Instagram](https://instagram.com/fabromp)
   
